@@ -24,5 +24,5 @@ Ești în Adjud și te confrunți cu o pană sau o altă problemă la cauciucuri
 ## Contactează-ne chiar acum!
 Nu lăsa o problemă minoră să-ți strice ziua sau să-ți afecteze planurile. Suntem aici să te ajutăm, indiferent de oră.  
 
-📞 **Sună acum la 0750455428 pentru vulcanizare mobilă în Adjud!**
+📞 **Sună acum la 0750291020 pentru vulcanizare mobilă în Adjud!**
 

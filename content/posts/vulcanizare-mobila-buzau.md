@@ -1,6 +1,6 @@
 ---
 title: "Vulcanizare Mobilă Buzău – Servicii Non-Stop pentru Problemele Tale cu Cauciucurile"
-description: "Vulcanizare Mobilă Buzău – Servicii Non-Stop pentru Problemele Tale cu Cauciucurile - Tel 0750455428"
+description: "Vulcanizare Mobilă Buzău – Servicii Non-Stop pentru Problemele Tale cu Cauciucurile - Tel 0750291020"
 featured_image: "/images/7.png"
 ---
 
@@ -25,4 +25,4 @@ Ești în Buzău și ai o pană sau o altă problemă la roțile mașinii? Nu l�
 ## Suntem aici să te ajutăm!
 Problemele cu cauciucurile nu ar trebui să-ți afecteze planurile. Sună-ne acum, iar noi vom ajunge rapid pentru a-ți oferi asistență.
 
-📞 **Contactează-ne acum la 0750455428 de telefon] pentru vulcanizare mobilă de încredere în Buzău!**
+📞 **Contactează-ne acum la 0750291020 de telefon] pentru vulcanizare mobilă de încredere în Buzău!**

@@ -26,4 +26,4 @@ Ai o pană sau o problemă la roțile mașinii în Galați? Nu-ți face griji! O
 ## Suntem alături de tine, oriunde în Galați!
 Nu lăsa o pană să-ți strice ziua. Contactează-ne și vom fi acolo să te ajutăm în cel mai scurt timp.
 
-📞 **Sună acum la 0750455428 pentru vulcanizare mobilă rapidă și eficientă în Galați!**
+📞 **Sună acum la 0750291020 pentru vulcanizare mobilă rapidă și eficientă în Galați!**

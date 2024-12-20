@@ -22,7 +22,7 @@ Indiferent dacă ai o pană, ai nevoie de schimbarea cauciucurilor sau alte prob
 **Suntem aici pentru tine, oriunde și oricând!**
 Dacă ai nevoie de ajutor, nu ezita să ne contactezi! Echipa noastră profesionistă este gata să te ajute rapid și eficient.
 
-📞 Sună acum la **0750455428** pentru asistență rapidă!
+📞 Sună acum la **0750291020** pentru asistență rapidă!
 
 Nu lăsa o problemă minoră să-ți strice ziua. Apelează la noi pentru un serviciu de încredere, disponibil non-stop!
 
