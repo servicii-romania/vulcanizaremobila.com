@@ -1,0 +1,14 @@
+baseURL = 'https://vulcanizaremobila.com/'
+languageCode = 'ro-ro'
+title = 'Vulcanizare Mobila - Non Stop'
+theme = 'ananke'
+params:
+  contact:
+    email: info@vulcanizaremobila.com
+    phone: +4 0750455428
+  subtitle: 'Vulcanizare Mobila - Non Stop'
+title: Vulcanizare Mobila - Non Stop
+
+
+[params]
+description = "Vulcanizare mobilă non-stop în județele Vrancea, Buzău, Adjud și Tecuci. Servicii rapide și accesibile, disponibile 24/7, cu cea mai avansată tehnologie pentru orice tip de mașină. Sună acum pentru asistență!"
